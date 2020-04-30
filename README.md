@@ -1,7 +1,5 @@
 ## Rest in Peace, Grandpa.  We will never forget you!
 
-![IMG_1750](https://user-images.githubusercontent.com/64568700/80667009-d7c22e00-8a52-11ea-92db-487429bfd27f.JPG)
-
 Dick U. Uno peacefully passed on October 21 at the age of 95. He is survived by his wife Ruby, sons Rick, (Irene) and Rob (Elke), and grandchildren Beth, Ricky, and Robbie. Dick was born in Ault, Colorado and grew up with his 9 siblings, working on the family farm. 
 
 At the outbreak of WWII, Dick volunteered for the US Army and served in Europe. After the war, Dick earned his BA at Colorado State. He met Ruby Oji, while she was living in Denver, they married in 1952 and lived in Colorado for a few years. Soon after Rick was born, they moved to Sacramento. 

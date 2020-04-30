@@ -12,34 +12,4 @@ Dick really encouraged his sons and later on, his grandchildren, to do well in s
 
 Dick cherished his friends and family and was known for his sense of humor and generosity. We all knew that he had our back. We will miss you Dad/grandpa and we will never forget you. Dick was buried in a private ceremony. Please join us in a celebration of life at the Pheasant Club, 2525 Jefferson Blvd., W. Sacramento, on November 30, from 2 to 4 pm. Donations in Dick's name can be made to the W. Sacramento Rotary Club scholarship fund, 837 Jefferson Blvd., West Sacramento, CA 95691.
 
-Published in The Sacramento Bee from Nov. 9 to Nov. 24, 2019
-
-You can use the [editor on GitHub](https://github.com/buno916/grandpa-uno/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
-
-### Markdown
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/buno916/grandpa-uno/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
+Published in The Sacramento Bee from Nov. 9 to Nov. 24, 2019.
